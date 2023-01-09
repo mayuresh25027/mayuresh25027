@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mayurpatil25027@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1m9eOILCXEmxE9UFFMsGygpV20JUcKK-v/view?usp=share_link](https://drive.google.com/file/d/1m9eOILCXEmxE9UFFMsGygpV20JUcKK-v/view?usp=share_link)
+- 📄 Have a look at my Resume [https://drive.google.com/file/d/1m9eOILCXEmxE9UFFMsGygpV20JUcKK-v/view?usp=share_link](https://drive.google.com/file/d/1m9eOILCXEmxE9UFFMsGygpV20JUcKK-v/view?usp=share_link)
 
 - ⚡ Fun fact **I love Cooking...**
 
